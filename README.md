@@ -1,2 +1,3 @@
 # Trol-code
-electronight es gay
+electronight es hetero
+
